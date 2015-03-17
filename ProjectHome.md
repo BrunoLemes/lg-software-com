@@ -1,0 +1,1 @@
+Sistema Comercial PAF-ECF, NFe, NFCe
